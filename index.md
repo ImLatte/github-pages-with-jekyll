@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Kalja jäillä
 
-I'm glad you are here. I plan to talk about ...
+Kaljaa kaljaa kaljaa kalja kalja nam
